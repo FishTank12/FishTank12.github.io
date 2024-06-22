@@ -1,1 +1,1 @@
-Creqating a  website as a portfolio
+Creating a website for my portfolio
